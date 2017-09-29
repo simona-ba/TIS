@@ -12,8 +12,8 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1.
-2.
+1. Simona Backovska
+2. Ondrej Hrusovsky
 3.
 4.
 
